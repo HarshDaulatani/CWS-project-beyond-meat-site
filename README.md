@@ -1,1 +1,0 @@
-# CWS-project-beyond-meat-site-
